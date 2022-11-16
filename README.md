@@ -1,4 +1,4 @@
-### Olá!! Eu sou Riquelme Vitor Sejam bem vindos 🤙
+### Olá!! Eu sou Riquelme Vitor sejam bem vindos 🤙
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/ricky_santss/)
 [![Twitch](https://img.shields.io/badge/Twitch-9146FF?style=for-the-badge&logo=twitch&logoColor=white)](https://www.twitch.tv/rickysantss)
@@ -17,4 +17,4 @@
 
 </div><br/>
 
-Pego os tempos livres para jogar, fazer live, ler livros ou passar o tempo com a minha namorada. Sou apaixonado por tecnologia... Até porque tenho técnico de informatica então qualquer problema com o hardware sei resolver
+Pego os tempos livres para jogar, fazer live, ler livros ou passar o tempo com a minha namorada. Sou apaixonado por tecnologia... Até porque sou técnico de informatica então qualquer problema com o hardware sei resolver
