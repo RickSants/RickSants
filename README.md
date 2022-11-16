@@ -17,4 +17,4 @@
 
 </div><br/>
 
-Pego os tempos livres para jogar, fazer live, ler livros ou passar o tempo com a minha namorada. Sou apaixonado por tecnologia... Até porque sou técnico de informatica então qualquer problema com o hardware sei resolver
+Pego os tempos livres para jogar, fazer live, ler livros ou passar o tempo com a minha namorada e sou apaixonado por tecnologia... Até porque sou técnico de informatica então qualquer problema com o hardware sei resolver
